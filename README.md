@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @ApokolypxTheMerDragon aka Apokolypx aka TheMerDragon aka Apokolypx D. MerDragon aka Apokx.... etc
+- 👋 Hi, I’m @ApokolypxTheMerDragon but just call me Apokx for short haha
 - 👀 I’m interested in everything but without enough motivation fuel (rip)
 - 🌱 I’m currently trying to learn html and css
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me: I'm most active on discord https://discord.gg/tFzDR9gCdM
+- 📫 How to reach me: I'm most active on discord!
