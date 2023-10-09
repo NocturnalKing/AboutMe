@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ApokolypxTheMerDragon but just call me Apokx for short haha
+- 👋 Hi, I’m @NocturnalKing
 - 👀 I’m interested in everything but without enough motivation fuel (rip)
 - 🌱 I’m currently trying to learn html and css
 - 💞️ I’m looking to collaborate on anything
